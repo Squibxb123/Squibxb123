@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Squibxb123
+- 👀 I’m interested in anything to do with ✨space✨ and obviusly coding.
+- 🌱 I’m currently learning how to code in as many programming languages as i can😄(My goal is to leaarn at least 3 by the end of the year)
+- 💞️ I’m looking to collaborate on any work i can currently handle
+- 😄 Pronouns: Anything you are comfortable with😊
+- ⚡ Fun fact: Did you know that the moon is actually lemon-shaped😂
